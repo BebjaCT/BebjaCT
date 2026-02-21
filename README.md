@@ -7,4 +7,4 @@
 - If you want to do a Project with me or just talk with me, contact me on Discord! My DMs are open!
 
 - How to reach me:
-- Discord: hiiiiii7207 or bebjact (2nd Account)
+- Discord: bebjaaa
